@@ -1,0 +1,1 @@
+# Simple-explanation-of-what-logarithm-is
